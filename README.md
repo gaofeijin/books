@@ -11,3 +11,7 @@
 * 戏梦巴黎
 > 链接：https://pan.baidu.com/s/16EE82A-xPdc-6aMCIrz6rA 
 提取码：f830
+
+* 妙先生
+> 链接：https://pan.baidu.com/s/1vlNJ5RXo0qaEzfUbs0DTvA 
+提取码：52ch
